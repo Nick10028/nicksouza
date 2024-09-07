@@ -1,5 +1,7 @@
 # Boas Vindas 🔥
-**Meu nome é Nick Souza**
+**Meu nome é Nick Souza Silva Reis**
+
+- tenho 17 anos
 
 - Faço estagio em um mercado 
 
